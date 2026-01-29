@@ -1,4 +1,4 @@
 # About Me:
 - Senior Roblox Game Developer
 
-joelbroad.com[joelbroad.com]
+joelbroad.com[www.joelbroad.com]
